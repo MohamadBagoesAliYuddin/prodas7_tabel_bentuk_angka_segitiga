@@ -1,0 +1,2 @@
+# prodas7_tabel_bentuk_angka_segitiga
+Mohamad Bagoes Ali Yuddin_20051397048_2020B
